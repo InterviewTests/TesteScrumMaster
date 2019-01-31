@@ -26,4 +26,6 @@ Quais as principais vantagens de usar o Scrum?
  
 Qual a SUA prioridade como SM?
 
+Scrum é um processo criativo, produtivo ou de aprendizagem?
+
 # Boa Sorte!!
