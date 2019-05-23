@@ -2,7 +2,7 @@
 
 ### # DESAFIO:
 
-Responder estas questões abaixo enviar para: camilla.cugliandro@resourceit.com & priscila.ribeiro@santander.com.br
+Responder estas questões abaixo enviar para: vpimentel@santander.com.br & carlos.pinto.dos.santos@santander.com.br
 
 Por que você decidiu ser SM?
 
